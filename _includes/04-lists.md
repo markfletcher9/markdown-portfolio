@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Nandi
+2. Bianca
+3. Chocolate
